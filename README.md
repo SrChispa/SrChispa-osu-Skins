@@ -13,6 +13,9 @@ Lista actualizada de las skins.
 # [SrChispa v4 TO skin by iSmileZ](https://drive.google.com/u/0/uc?id=1wWdLnhXHf9LYNlybQMvoHkZM7E21tlKL&export=download)
 ![](https://i.imgur.com/H7AMf8Q.jpg)
 
+# [SrChispa v4 VE skin by iSmileZ](https://drive.google.com/u/0/uc?id=1AWP6_xEdnaUWbbkXkIvhhGA6lbNZpTeb&export=download)
+![](https://i.imgur.com/tVfpVF6.jpg)
+
 # [SrChispa v3.1 Red Edition skin by iSmileZ](https://drive.google.com/u/0/uc?id=1RlgGt_hy3-f7WVgnD3JqwyfWlRvIlkun&export=download)
 ![](https://skins.osuck.net/uploads/posts/2020-08/1597478047_screenshot9278.jpg)
 
