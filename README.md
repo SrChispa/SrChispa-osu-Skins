@@ -4,14 +4,14 @@ Lista actualizada de las skins.
 # [SrChispa v4 SA skin by iSmileZ](https://drive.google.com/u/0/uc?id=1mp1gdQ7rJA-ndIl7gns4aOldmUSJP6jc&export=download)
 ![](https://i.imgur.com/0sdxVHk.jpg)
 
-# [SrChispa v4 SZ skin by iSmileZ](https://drive.google.com/u/0/uc?id=1-uCMaYP6dhPFWmIlmCAJRU2cYuF0MB9-&export=download)
-![](https://i.imgur.com/1YPwz0d.jpg)
+# [Rupertion__Ryan_Mystia](https://www.mediafire.com/file/84rpbra5pw8hx0b/Rupertion_%2526_ryan_%2528mystia%2529.osk/file) 
+![](https://i.imgur.com/Qst9DGQ.jpg)
+
+# [-Gawr Gura- skin](https://www.mediafire.com/file/6t84ym7e02jy2f3/-Gawr_Gura_Chispa_Edit-.osk/file)
+![](https://i.imgur.com/Pjp8eLI.jpg)
 
 # [SrChispa v4 DT skin by iSmileZ Chispa edit+](https://drive.google.com/u/0/uc?id=1AY7v1_ltqVrcj1Y3UhHQz2QsGgQ1_I6O&export=download)
 ![](https://i.imgur.com/PLTCCAc.jpg)
-
-# [SrChispa v4 TO skin by iSmileZ](https://drive.google.com/u/0/uc?id=1wWdLnhXHf9LYNlybQMvoHkZM7E21tlKL&export=download)
-![](https://i.imgur.com/H7AMf8Q.jpg)
 
 # [SrChispa v4 VE skin by iSmileZ](https://drive.google.com/u/0/uc?id=1AWP6_xEdnaUWbbkXkIvhhGA6lbNZpTeb&export=download)
 ![](https://i.imgur.com/tVfpVF6.jpg)
@@ -25,4 +25,4 @@ Lista actualizada de las skins.
 # [Seoul-Panmimi 16-9](https://www.reddit.com/r/OsuSkins/comments/6kycvr/seoul_panmimi_skin_release/) 
 ![](https://i.imgur.com/qb9z7jE.jpg)
 
-Seguire actualizando a medida agregue skins <3 
+
