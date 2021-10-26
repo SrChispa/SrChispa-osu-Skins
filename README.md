@@ -1,8 +1,8 @@
 # SrChispa-osu-Skins
 Lista actualizada de las skins.
 
-# [Mystia+owoTuna『Chispa』by Various](https://drive.google.com/u/0/uc?id=14RenN6CquWr82c3iSOlbZ3CSs6vXjDUg&export=download)
-![](https://i.imgur.com/FroeLDE.jpg)
+# [Yugen+owoTuna『Chispa』by Various](https://drive.google.com/u/0/uc?id=14RenN6CquWr82c3iSOlbZ3CSs6vXjDUg&export=download)
+![](https://i.imgur.com/7Ml5et2.jpg)
 
 # [SrChispa v4 SA skin by iSmileZ](https://drive.google.com/u/0/uc?id=1mp1gdQ7rJA-ndIl7gns4aOldmUSJP6jc&export=download)
 ![](https://i.imgur.com/0sdxVHk.jpg)
