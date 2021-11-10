@@ -4,6 +4,9 @@ Lista actualizada de las skins.
 # [Yugen+owoTuna『Chispa』by Various](https://drive.google.com/u/0/uc?id=1GyyqqIFI4kHmmkMAxJzYRhKH55-zTSlm&export=download)
 ![](https://i.imgur.com/7Ml5et2.jpg)
 
+# [Yugen+iSmileZ『DT』by Various](https://drive.google.com/u/0/uc?id=1T7YjoCFYYJUbfWHXtwlg95G_3qLMqjw-&export=download)
+![](https://i.imgur.com/GGZlmXQ.jpg)
+
 # [SrChispa v4 SA skin by iSmileZ](https://drive.google.com/u/0/uc?id=1mp1gdQ7rJA-ndIl7gns4aOldmUSJP6jc&export=download)
 ![](https://i.imgur.com/0sdxVHk.jpg)
 
